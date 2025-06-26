@@ -27,7 +27,7 @@
 
 ## 🔥 推荐资源：高质量 Facebook 账号购买（自动发货）
 
-想要稳定使用 Facebook 广告或主页运营？推荐使用优质账号：
+想要稳定使用 Facebook 广告或主页运营？推荐使用优质账号：👉 www.maxads88.com
 
 👉 **[购买高质量 Facebook 账号 - 自动发货，仅 $0.03 起](https://www.maxads88.com)**  
 - 支持养号 / 投放 / 主页管理  
